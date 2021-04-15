@@ -1,4 +1,4 @@
-系统下载地址：
+完整版系统下载地址：
 	链接：https://pan.baidu.com/s/1Q2kCdSBxlcygZ48stxHpPA 
 	提取码：zm2y 
 
